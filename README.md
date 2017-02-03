@@ -8,13 +8,3 @@ fdasdffsafd
 
 dsfafdsfsadfasfd this is tsenguun writing
 
-
-
-
-
-
-
-
-
-
-lOOOOOOOOOOOOOLLLLLLLLLLLLLLL
